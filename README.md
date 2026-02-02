@@ -48,7 +48,7 @@ This is a personal note set, but:
 
 I’m always down to connect, collaborate, or just chat tech!
 
-- 📧 [aadityaranjanmoitra@gmail.com]
+- 📧 [aadityaranjan.ai@gmail.com]
 - 🧑‍💻 [LinkedIn](https://linkedin.com/in/aaditya-ranjan-moitra)
 - 🐙 [Instagram](https://www.instagram.com/codingavgeek/)
 
